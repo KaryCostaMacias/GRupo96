@@ -1,0 +1,7 @@
+# grupo96
+Esto lo agregó Lorenzo!
+Esto lo agregó Cynthia! <3
+Esto lo agregó Matias!
+Esto lo agregó Silvana! :D
+Esto lo agregó Rubia.
+Esto lo agregó Kary.
